@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Science
 - 🌱 I’m currently learning Google Data Analytics
 - 💞️ I’m looking to collaborate on Data Analysis Projects 
-- 📫 How to reach me ...imohsolomonokon@gmail.com
+- 📫 How to reach me ...www.linkedin.com/in/imohsolomonokon
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...I started drawing as a kid ever since i learnt how to write
 
